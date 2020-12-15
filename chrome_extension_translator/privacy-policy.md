@@ -1,6 +1,6 @@
 # Privacy Policy
 
-## Your consent
+## Your agreement
 
 By using the chrome extensions "Surf Translate Memorize" you agree to the following privacy policy.
 
